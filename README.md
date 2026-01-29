@@ -56,8 +56,8 @@ Desenvolvimento de soluções utilizando IA aplicada a automações e sistemas w
 
 ## 📫 Contato
 
-- 💼 LinkedIn: https://www.linkedin.com/in/seu-link  
-- ✉️ Email: seuemail@email.com  
+- 💼 LinkedIn: www.linkedin.com/in/lorranssilva
+- ✉️ Email: icm.lorran@gmail.com  
 
 ---
 
